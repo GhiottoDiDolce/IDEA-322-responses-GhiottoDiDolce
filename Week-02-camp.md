@@ -1,5 +1,5 @@
-![Camp #4: Canon of Camp: Schoedsack's King Kong (]  
+![(Dolce #4.jpeg)]
 
-![Camp #7: Empson's Phase, "Urban Pastoral"  
+![(Dolce #7.jpeg)]  
 
-![Camp #8: Paris Metropolitan, Hector Guimard (1890)
+![(Dolce #8.jpeg)]
