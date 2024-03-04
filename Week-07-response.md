@@ -1,4 +1,4 @@
-**READING RESPONSE: "BEYOND SPECULATIVE DESIGN: PAST-
+<h3> WEEK 07 READING RESPONSE: "BEYOND SPECULATIVE DESIGN: PAST - PRESENT - FUTURES"</h3>
 
 While Reading _**“Beyond Speculative Design: Past - Present - Futures,”**_ I found Sara Bozanic to be intriguing to read about.
 She was considered a _“hybrid”_ within the reading for her ability to design, educate, think critically, and strategize for
