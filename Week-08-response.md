@@ -1,2 +1,2 @@
-<h3>Week 08 Reading Response: Speculative Design</h3>
+<h3>WEEK 08 READING RESPONSE: SPECULATIVE DESIGN</h3>
 
